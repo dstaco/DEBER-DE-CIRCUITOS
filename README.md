@@ -586,7 +586,7 @@ La resistencia es 250 V
 
 4.VIDEO
 
-https://youtu.be/dtPfvBV9Rkk
+https://youtu.be/xOObffX422c
 
 5.CONCLUSIONES
 
